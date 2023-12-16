@@ -6,11 +6,8 @@
 
 ## 1. Los hábitos correctos son el secreto del éxito en la vida 🌟🔄 💪🎯
 
-- Los humanos necsitamos hábitos; estos tienen un impacto invisible en nuestra personalidad. 🔄🧍‍♂️🌟 Son como fuerzas que moldean nuestro carácter y comportamiento diario. 💡🔍
+- Los hábitos son los arquitectos invisibles de nuestro ser humano. 🔨✨💪 #ConstruyendoCarácter"
 
 
-![SusanStormInvisibleWomanGIF](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/74ce2c12-bfff-4e69-ab7c-51600d8cecfb)
 
-
-- 
--  
+- El arte está en hacer del esfuerzo un entrenamiento 🏋🏽 hacia la meta deseada. 💃✨🎯 #EntrenandoElÉxito" 
