@@ -11,4 +11,7 @@
 ![InvisibleWoman.jpg](InvisibleWoman.jpg)
 
 
-- El arte está en hacer del esfuerzo un entrenamiento 🏋🏽 hacia la meta deseada. 💃✨🎯 #EntrenandoElÉxito" 
+- La clave 🔑 está en hacer del esfuerzo un entrenamiento 🏋🏽 hacia la meta deseada. 💃✨🎯 #EntrenandoElÉxito
+
+- Iniciar es desafiante, avanzar es difícil, ¡pero el logro final es la dulce recompensa del buen hábito! 🚀💪😊 #PersistenciaFructífera"
+ 
