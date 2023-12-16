@@ -6,7 +6,9 @@
 
 ## 1. Los hábitos correctos son el secreto del éxito en la vida 🌟🔄 💪🎯
 
-- Los hábitos son los arquitectos invisibles de nuestro ser humano. 🔨✨💪 #ConstruyendoCarácter"
+
+- Los hábitos 💫 son como los arquitectos invisibles 🏗️ que moldean nuestro carácter humano 🧠💪🌟
+
 
 ![InvisibleWoman.jpg](InvisibleWoman.jpg)
 
