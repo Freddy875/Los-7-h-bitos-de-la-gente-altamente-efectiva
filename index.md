@@ -23,3 +23,4 @@
 - Al ajustar mis creencias y forjar hábitos, construyo la senda hacia la efectividad excepcional. 💡🌟💪 #CreenciasPotenciadoras
 ---
 
+## 2. Centrate en áreas especificas de tu vida y modifica tus pradigmas para iniciar tu cambio duradero
