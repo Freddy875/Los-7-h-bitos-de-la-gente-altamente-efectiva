@@ -36,9 +36,7 @@
 7. 🔧 Mantén funcionando un sistema efectivo y eficiente.
 
 
-## Explora tus paradigmas
-
-¡Claro! Aquí tienes un aforismo con emojis sobre los paradigmas:
+### Explora tus paradigmas
 
 👓 Los paradigmas son como lentes,
 🌍 Filtran el mundo que vemos a nuestro alrededor,
@@ -66,3 +64,28 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 🤝 Y moldean nuestras relaciones con los demás.
 
 ---
+
+### Debemos desarrolla nuetras capacidad proactiva en vez de reactiva
+
+⚡Ser proactivo significa asumir la responsabilidad de tus actos en lugar de culpar a las circunstancias. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
