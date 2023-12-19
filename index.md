@@ -24,3 +24,45 @@
 ---
 
 ## 2. Centrate en áreas especificas de tu vida y modifica tus pradigmas para iniciar tu cambio duradero
+
+### 7 áreas clave para ser altamente efectivo.
+
+1. 🌟 Actuar es clave, no solo reaccionar.
+2. 🔮 Antes de empezar, prevé las consecuencias.
+3. 🎯 Establece prioridades sobre la agenda.
+4. 🤝 Busca el bien común en cada acción.
+5. 👂 Escucha antes de ser escuchado.
+6. 🤝 Trabaja en equipo para lograr más.
+7. 🔧 Mantén funcionando un sistema efectivo y eficiente.
+
+
+## Explora tus paradigmas
+
+¡Claro! Aquí tienes un aforismo con emojis sobre los paradigmas:
+
+👓 Los paradigmas son como lentes,
+🌍 Filtran el mundo que vemos a nuestro alrededor,
+🧐 Cambiarlos amplía nuestra perspectiva.
+
+Recuerda la película Ratatouille habla sobre la perspectiva. 
+
+![RatatouilleGIF (2)](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/37f13cd4-2903-4726-96e8-2c4775a7e811)
+
+😌 Quien lleva consigo paradigmas positivos,
+🌈 Encuentra consuelo aún en momentos de dolor,
+❤️ La perspectiva ilumina el camino hacia la paz interior.
+
+🔄 El cambio florece al cuestionar nuestras acciones,
+🤔 Modificamos actitudes progresivamente,
+🌱 La evolución está en la reflexión continua.
+
+
+🔄 Los cambios de paradigma no son repentinos,
+🧠 Requieren esfuerzo voluntario para transformar nuestra percepción,
+🌟 La voluntad abre la puerta 🚪 a nuevas formas de ver el mundo.
+
+🌟 Nuestros paradigmas son como semillas,
+🌱 Dan vida a nuestras actitudes y comportamientos,
+🤝 Y moldean nuestras relaciones con los demás.
+
+---
