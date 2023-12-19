@@ -69,6 +69,7 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 ⚡Ser proactivo significa asumir la responsabilidad de tus actos en lugar de culpar a las circunstancias. 
 
+![FlashpointParadox.jpg](FlashpointParadox.jpg)
 
 
 
