@@ -65,15 +65,27 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 ---
 
-### Debemos desarrolla nuetras capacidad proactiva en vez de reactiva
+### 3. Debemos desarrolla nuetras capacidad proactiva en vez de reactiva
 
 ⚡Ser proactivo significa asumir la responsabilidad de tus actos en lugar de culpar a las circunstancias. 
 
 ![FlashpointParadox.jpg](FlashpointParadox.jpg)
 
 
+🛠️ La proactividad es tu herramienta en la adversidad,
+🧭 Te vuelve competente incluso en situaciones extremas,
+💪 ¡Actuar antes de que suceda prepara para cualquier desafío!
+
+🤝 En vez de culpar, elige tomar responsabilidad,
+🔍 Asumir es el primer paso hacia el crecimiento personal,
+💡 ¡La responsabilidad abre puertas hacia soluciones genuinas!
+
+🔍 El verdadero problema no es el problema en sí,
+🧘 Sino cómo reaccionamos ante él,
+🌟 La actitud puede transformar desafíos en oportunidades.
 
 
+**Historia:** Recuerda cuando investigaste sobre las Ineligencias artificiales 🤖 y los OKRs y se lo propusiste a los gerentes, te sentiste extremadamente bien cuando uno de ellos te llamo 📱y te dijo me sorprende 🎁 positivamente tu practividad. 
 
 
 
