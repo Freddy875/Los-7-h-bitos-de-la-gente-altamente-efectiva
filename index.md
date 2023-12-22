@@ -86,11 +86,11 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 - 🌟 La actitud puede transformar desafíos en oportunidades.
 
 
-**Historia:** Recuerda cuando investigaste sobre las Ineligencias artificiales 🤖 y los OKRs y se lo propusiste a los gerentes, te sentiste extremadamente bien cuando uno de ellos te llamo 📱y te dijo me sorprende 🎁 positivamente tu practividad. 
+**Historia:** Recuerda cuando investigaste sobre las Ineligencias artificiales 🤖 y los OKRs y se lo propusiste a los gerentes, te sentiste extremadamente bien cuando uno de ellos te llamo 📱y te dijo me sorprende 🎁 positivamente tu proactividad. 
 
 ---
 
-### 4. Aprender a crear imagenes mentales concretos y mensajes claves sobre tu objetivo. 
+### 4. Aprender a crear imágenes mentales concretos y mensajes claves sobre tu objetivo.
 
 - 🖌️ Antes de construir, dibuja en tu mente,
 - 🏗️ La visualización prepara el camino hacia la creación,
@@ -102,13 +102,13 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 ⚡La planificación 📝 adecuada es la clave para la ejecución de cualquier objetivo que merezca la pena. 
 
-**Historia:** Escribi mis objetivos en formato SMART, por eso llame a este el año SMART. 
+**Historia:** Escribí mis objetivos en formato SMART, por eso llame a este el año SMART. 
 
 ### Trabaja con eficiencia no solo con eficacia
 
 ![CheshireCatGIF](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/6f9f46ee-1fe3-4016-800b-7a8e26849234)
 
-**"Si no sabes a donde vas no importa ual camino tomes."**
+**"Si no sabes a donde vas no importa cual camino tomes."**
 
 - ⏱️ La eficiencia es hacer mucho en poco tiempo,
 - 🎯 Ser efectivo es perseguir lo que realmente importa,
@@ -118,7 +118,7 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 - 🔍 Ven el panorama completo y viven con determinación,
 - 🌅 ¡Una visión clara impulsa acciones enfocadas!
 
-**Hitoria:** Recuerda cuando esribiste una agenda pra cumplir con tus propositos del año SMART y auqneu no cumplite con todoe el horario seguiste con la mayoria y eso te lleno de felicidad 😊
+**Historia:** Recuerda cuando escribiste una agenda para cumplir con tus propósitos del año SMART y aunque no cumpliste con todos el horario seguiste con la mayoría y eso te lleno de felicidad 😊
 
 
 🌱 No te apresures, estás sembrando los cimientos de tu vida 🏗️
