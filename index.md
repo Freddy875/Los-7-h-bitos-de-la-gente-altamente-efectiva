@@ -87,14 +87,44 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 **Historia:** Recuerda cuando investigaste sobre las Ineligencias artificiales 🤖 y los OKRs y se lo propusiste a los gerentes, te sentiste extremadamente bien cuando uno de ellos te llamo 📱y te dijo me sorprende 🎁 positivamente tu practividad. 
 
+---
+
+### 4. Aprender a crear imagenes mentales concretos y mensajes claves sobre tu objetivo. 
+
+🖌️ Antes de construir, dibuja en tu mente,
+🏗️ La visualización prepara el camino hacia la creación,
+🤔 ¡Imagina antes de materializar!
+   
+📝 Sin una planificación cuidadosa, los errores son más comunes,
+🎯 Visualiza el éxito antes de ponerlo en práctica,
+🌟 ¡La visualización es el primer paso hacia el triunfo!
+
+⚡La planificación 📝 adecuada es la clave para la ejecución de cualquier objetivo que merezca la pena. 
+
+**Historia:** Escribi mis objetivos en formato SMART, por eso llame a este el año SMART. 
+
+### Trabaja con eficiencia no solo con eficacia
+
+![CheshireCatGIF](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/6f9f46ee-1fe3-4016-800b-7a8e26849234)
+
+**"Si no sabes a donde vas no importa ual camino tomes."**
+
+⏱️ La eficiencia es hacer mucho en poco tiempo,
+🎯 Ser efectivo es perseguir lo que realmente importa,
+🌟 ¡Enfocarte en lo importante impulsa el verdadero progreso!
+
+🚀 La gente productiva no persigue metas al azar,
+🔍 Ven el panorama completo y viven con determinación,
+🌅 ¡Una visión clara impulsa acciones enfocadas!
+
+**Hitoria:** Recuerda cuando esribiste una agenda pra cumplir con tus propositos del año SMART y auqneu no cumplite con todoe el horario seguiste con la mayoria y eso te lleno de felicidad 😊
 
 
+🌱 No te apresures, estás sembrando los cimientos de tu vida 🏗️
 
+Estas continunado con tu entrenamiento Jedi 
 
-
-
-
-
+![GroguMeditationGIF](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/798340d7-7247-4683-9ea1-2ccea792366b)
 
 
 
