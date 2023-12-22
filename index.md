@@ -126,10 +126,3 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 Estas continunado con tu entrenamiento Jedi 
 
 ![GroguMeditationGIF](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/798340d7-7247-4683-9ea1-2ccea792366b)
-
-
-
-
-
-
-
