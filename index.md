@@ -39,30 +39,30 @@
 
 ### Explora tus paradigmas
 
-👓 Los paradigmas son como lentes,
-🌍 Filtran el mundo que vemos a nuestro alrededor,
-🧐 Cambiarlos amplía nuestra perspectiva.
+- 👓 Los paradigmas son como lentes,
+- 🌍 Filtran el mundo que vemos a nuestro alrededor,
+- 🧐 Cambiarlos amplía nuestra perspectiva.
 
 Recuerda la película Ratatouille habla sobre la perspectiva. 
 
 ![RatatouilleGIF (2)](https://github.com/Freddy875/Los-7-h-bitos-de-la-gente-altamente-efectiva/assets/60365437/37f13cd4-2903-4726-96e8-2c4775a7e811)
 
-😌 Quien lleva consigo paradigmas positivos,
-🌈 Encuentra consuelo aún en momentos de dolor,
-❤️ La perspectiva ilumina el camino hacia la paz interior.
+- 😌 Quien lleva consigo paradigmas positivos,
+- 🌈 Encuentra consuelo aún en momentos de dolor,
+- ❤️ La perspectiva ilumina el camino hacia la paz interior.
 
-🔄 El cambio florece al cuestionar nuestras acciones,
-🤔 Modificamos actitudes progresivamente,
-🌱 La evolución está en la reflexión continua.
+- 🔄 El cambio florece al cuestionar nuestras acciones,
+- 🤔 Modificamos actitudes progresivamente,
+- 🌱 La evolución está en la reflexión continua.
 
 
-🔄 Los cambios de paradigma no son repentinos,
-🧠 Requieren esfuerzo voluntario para transformar nuestra percepción,
-🌟 La voluntad abre la puerta 🚪 a nuevas formas de ver el mundo.
+- 🔄 Los cambios de paradigma no son repentinos,
+- 🧠 Requieren esfuerzo voluntario para transformar nuestra percepción,
+- 🌟 La voluntad abre la puerta 🚪 a nuevas formas de ver el mundo.
 
-🌟 Nuestros paradigmas son como semillas,
-🌱 Dan vida a nuestras actitudes y comportamientos,
-🤝 Y moldean nuestras relaciones con los demás.
+- 🌟 Nuestros paradigmas son como semillas,
+- 🌱 Dan vida a nuestras actitudes y comportamientos,
+- 🤝 Y moldean nuestras relaciones con los demás.
 
 ---
 
@@ -73,17 +73,17 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 ![FlashpointParadox.jpg](FlashpointParadox.jpg)
 
 
-🛠️ La proactividad es tu herramienta en la adversidad,
-🧭 Te vuelve competente incluso en situaciones extremas,
-💪 ¡Actuar antes de que suceda prepara para cualquier desafío!
+- 🛠️ La proactividad es tu herramienta en la adversidad,
+- 🧭 Te vuelve competente incluso en situaciones extremas,
+- 💪 ¡Actuar antes de que suceda prepara para cualquier desafío!
 
-🤝 En vez de culpar, elige tomar responsabilidad,
-🔍 Asumir es el primer paso hacia el crecimiento personal,
-💡 ¡La responsabilidad abre puertas hacia soluciones genuinas!
+- 🤝 En vez de culpar, elige tomar responsabilidad,
+- 🔍 Asumir es el primer paso hacia el crecimiento personal,
+- 💡 ¡La responsabilidad abre puertas hacia soluciones genuinas!
 
-🔍 El verdadero problema no es el problema en sí,
-🧘 Sino cómo reaccionamos ante él,
-🌟 La actitud puede transformar desafíos en oportunidades.
+- 🔍 El verdadero problema no es el problema en sí,
+- 🧘 Sino cómo reaccionamos ante él,
+- 🌟 La actitud puede transformar desafíos en oportunidades.
 
 
 **Historia:** Recuerda cuando investigaste sobre las Ineligencias artificiales 🤖 y los OKRs y se lo propusiste a los gerentes, te sentiste extremadamente bien cuando uno de ellos te llamo 📱y te dijo me sorprende 🎁 positivamente tu practividad. 
@@ -92,13 +92,13 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 ### 4. Aprender a crear imagenes mentales concretos y mensajes claves sobre tu objetivo. 
 
-🖌️ Antes de construir, dibuja en tu mente,
-🏗️ La visualización prepara el camino hacia la creación,
-🤔 ¡Imagina antes de materializar!
+- 🖌️ Antes de construir, dibuja en tu mente,
+- 🏗️ La visualización prepara el camino hacia la creación,
+- 🤔 ¡Imagina antes de materializar!
    
-📝 Sin una planificación cuidadosa, los errores son más comunes,
-🎯 Visualiza el éxito antes de ponerlo en práctica,
-🌟 ¡La visualización es el primer paso hacia el triunfo!
+- 📝 Sin una planificación cuidadosa, los errores son más comunes,
+- 🎯 Visualiza el éxito antes de ponerlo en práctica,
+- 🌟 ¡La visualización es el primer paso hacia el triunfo!
 
 ⚡La planificación 📝 adecuada es la clave para la ejecución de cualquier objetivo que merezca la pena. 
 
@@ -110,13 +110,13 @@ Recuerda la película Ratatouille habla sobre la perspectiva.
 
 **"Si no sabes a donde vas no importa ual camino tomes."**
 
-⏱️ La eficiencia es hacer mucho en poco tiempo,
-🎯 Ser efectivo es perseguir lo que realmente importa,
-🌟 ¡Enfocarte en lo importante impulsa el verdadero progreso!
+- ⏱️ La eficiencia es hacer mucho en poco tiempo,
+- 🎯 Ser efectivo es perseguir lo que realmente importa,
+- 🌟 ¡Enfocarte en lo importante impulsa el verdadero progreso!
 
-🚀 La gente productiva no persigue metas al azar,
-🔍 Ven el panorama completo y viven con determinación,
-🌅 ¡Una visión clara impulsa acciones enfocadas!
+- 🚀 La gente productiva no persigue metas al azar,
+- 🔍 Ven el panorama completo y viven con determinación,
+- 🌅 ¡Una visión clara impulsa acciones enfocadas!
 
 **Hitoria:** Recuerda cuando esribiste una agenda pra cumplir con tus propositos del año SMART y auqneu no cumplite con todoe el horario seguiste con la mayoria y eso te lleno de felicidad 😊
 
