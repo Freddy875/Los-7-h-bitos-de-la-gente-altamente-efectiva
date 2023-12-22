@@ -1,5 +1,7 @@
 # Los 7 hábitos de la gente altamente efectiva de Stephen R. Covey
 
+<span style="background-color: black; color: white;">Texto con fondo negro y texto blanco</span>
+
 ![Engranaje.jpg](Engranaje.jpg)
 
 ---
